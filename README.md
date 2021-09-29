@@ -1,1 +1,0 @@
-# nuevoproyectoqijgs
